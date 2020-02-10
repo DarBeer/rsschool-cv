@@ -1,1 +1,1 @@
-# rsschool-cv
+https://darbeer.github.io/rsschool-cv/cv
